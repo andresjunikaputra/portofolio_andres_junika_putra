@@ -1,1 +1,0 @@
-# portofolio_andres_junika_putra
